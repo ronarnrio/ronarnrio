@@ -2,7 +2,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 
-- 🥅 2021 Goals: Create more projects and gain a deeper understanding of the technologies that I use.
+- 🥅 2022 Goals: Create more projects and gain a deeper understanding of the technologies that I use.
 
 ### Connect with me:
 
